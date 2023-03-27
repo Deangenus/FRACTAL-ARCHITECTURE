@@ -3,7 +3,7 @@
 <br>
 
 # FRACTAL DIMENTIONS
-The universe has opened and revealed countless new galazies. The peoblem is gettin there.
-Factal Dimentions wil locate and present these destenations never before seen by humans
-Then transport indivdua or team to that destination for tours scientific research or habitation and colonization.
-A paradigm shift from the overall outdated scientific hypothesis to fractal geometry.
+The universe has opened and revealed countless new galaxies. The peoblem is getting there.
+Factal Dimentions will locate and present these as destinations never before seen by humans.
+Transport indivdua or team to that destination for tours , scientific research , habitation and or  colonization.
+A paradigm shift from the overall outdated scientific theories to fractal geometry.
