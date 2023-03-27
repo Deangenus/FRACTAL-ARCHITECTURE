@@ -3,6 +3,7 @@
 <br>
 
 # DESTINATIONS
-The unicerse has opened and revealed countless new galazies. The peoblem is gettin there.
-Destinations wil locate and present these destenations never before seen by humans
-Then transport indivdua or team to that destination for tours or scientific research.
+The universe has opened and revealed countless new galazies. The peoblem is gettin there.
+Factal Dimentions wil locate and present these destenations never before seen by humans
+Then transport indivdua or team to that destination for tours scientific research or habitation and colonization.
+A paradigm shift from the overall outdated scientific hypothesis to fractal geometry.
