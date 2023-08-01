@@ -1,4 +1,4 @@
-! [ image / https://drive.google.com/file/d/1872hXBeQ-fL6wkVQ2g_mBAp5xBira_0f/view?usp=drivesdk ] (     )
+! [ image ] ( https://drive.google.com/file/d/1872hXBeQ-fL6wkVQ2g_mBAp5xBira_0f/view?usp=drivesdk )
 
 
 <video>https://drive.google.com/file/d/1ZHeBTjQSEIB7oT3VJiHnhVkAyhpNLshW/view?usp=drivesdk
