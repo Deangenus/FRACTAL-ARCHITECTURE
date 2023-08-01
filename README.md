@@ -1,4 +1,4 @@
-!![jmage](±
+!![jmage](Banner.med.png)
 
 
 <video>https://drive.google.com/file/d/1ZHeBTjQSEIB7oT3VJiHnhVkAyhpNLshW/view?usp=drivesdk
