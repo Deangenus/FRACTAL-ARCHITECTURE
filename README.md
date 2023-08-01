@@ -10,3 +10,5 @@ The universe has opened and revealed countless new galaxies. The peoblem is gett
 Factal Dimentions will locate and present these as destinations never before seen by humans.
 Transport indivdua or team to that destination for tours , scientific research , habitation and or  colonization.
 A paradigm shift from the overall outdated scientific theories to fractal geometry.
+
+#video(https://drive.google.com/file/d/189tUsK151-4SBf1URWZe8b2_2_UfdkAO/view?usp=drivesdk)
