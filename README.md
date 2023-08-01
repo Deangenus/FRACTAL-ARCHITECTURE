@@ -1,4 +1,4 @@
-! [ image ] (https://github.com/Deangenus/FRACTAL-ARCHITECTURE/blob/f372a5ed2d0bd3dee479010bf29de85a029e4816/Banner.sm.png )
+!![jmage](±
 
 
 <video>https://drive.google.com/file/d/1ZHeBTjQSEIB7oT3VJiHnhVkAyhpNLshW/view?usp=drivesdk
